@@ -1,0 +1,5 @@
+- Hi, I,m Vod
+- I don't know what I'm doing here.
+- It really doesn't matter what you have to say.
+- Or maybe yes? how weird.
+- Everything is dark.
